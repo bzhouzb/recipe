@@ -3,3 +3,4 @@
 * 2 tsp salt
 * 1 onion
 * 2 tbsp coriander
+* 1 tbsp sugar
