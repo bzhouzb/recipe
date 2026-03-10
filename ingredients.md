@@ -4,3 +4,4 @@
 * 1 onion
 * 2 tbsp coriander
 * 1 tbsp sugar
+* 3 chillies
